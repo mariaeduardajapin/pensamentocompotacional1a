@@ -1,0 +1,1 @@
+# pensamentocompotacional1a
